@@ -1,0 +1,2 @@
+# SEO-Courses
+SEO is an acronym that stands for search engine optimization, which is the process of optimizing your website to get organic, or un-paid, traffic from the search engine results page. FITA Academy offers the best SEO Courses in the following locations. Web:  [SEO Training in Chennai](https://www.fita.in/seo-training-in-chennai/),  [SEO Online Course](https://www.fita.in/seo-training/), [SEO Training in Coimbatore](https://www.fita.in/seo-training-in-coimbatore/)
